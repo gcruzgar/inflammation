@@ -1,3 +1,1 @@
 # inflammation
-
-GONZALO SUCKS
